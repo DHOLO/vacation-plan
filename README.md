@@ -5,4 +5,4 @@ Go to the Cappadocia
 Go to the Karadeniz
 Complete the puzzle
 Find a new summer serries to watch
-Look for somthingm exciting
+Look for something exciting
